@@ -1,1 +1,3 @@
-# EE322-
+# EE322
+
+## General Info
