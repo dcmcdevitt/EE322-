@@ -16,7 +16,7 @@
 ---
 Some music from a video game I've played recently Lethal Compony can be found here: [Lethal Copany Soundtrack](https://www.youtube.com/watch?v=S8V5fySc_6o)
 
-After accidently clicking the above link and not saving and then explaing to a friend that this was a learning moment he said
+After accidently clicking the above link and not saving my changes, forcing me to almost restart this assignment, and then explaing to a friend that this was a learning moment he said
 > The L is for learning not for losing - Nathan Taco-Bravo
 
 Here is a photo I took on my recent trip to Iceland it's the Barnafoss also know as Children's Falls. 
